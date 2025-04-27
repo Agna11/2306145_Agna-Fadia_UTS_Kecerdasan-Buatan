@@ -1,0 +1,1 @@
+# 2306145_Agna-Fadia_UTS_Kecerdasan-Buatan
